@@ -2,7 +2,6 @@
 
 #<p align ="center"> HE / IT  
 
-![alt text](https://64.media.tumblr.com/5a304e2f498c0a24d9a8fddb3fcc8f93/121f77e008a72d92-17/s1280x1920/f2b2ba36c15bc7b52dfcc529ed3a5a6bad5bb0f9.pnj) test!!!
-
+![alt text](https://64.media.tumblr.com/e64732634e52ba1be3d5e005c8455a72/f8a0a0d0bed83a75-e9/s2048x3072/60c4ba5a5876b41602a03b5fde4622cc31268c29.jpg)
 
 
