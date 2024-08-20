@@ -1,4 +1,4 @@
-#<p align ="center"> coworker . randall . vincent(NOTVINCE)
+#<p align ="center"> coworker . vincent(NOTVINCE)
 
 #<p align ="center"> HE / IT  
 
